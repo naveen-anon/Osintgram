@@ -45,9 +45,10 @@ Make sure you have:
 
 
 ## developer
-insta id @naveen_anon
-telegram id @naveen_anon
-YouTube channel @naveen_anon
+insta id @cyber_defance_
+
+telegram id t.me//cyber_defence_1
+
 GitHub id @naveen-anon
 
 
